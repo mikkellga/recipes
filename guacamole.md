@@ -3,7 +3,7 @@
 \## Ingredients
 
 * advokado
-* lemon
+* lime
 * salt
 
 \## Instructions
