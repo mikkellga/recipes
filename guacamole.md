@@ -6,6 +6,8 @@
 * lime, 3 kr
 * salt, ~0 kr 
 * garlic 10 kr
+* Martyn Plummer magic!
 
 \## Instructions
+
 
